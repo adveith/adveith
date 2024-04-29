@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Btech Cse in AI/ML**
 
-- 📫 How to reach me **Adveith17@gmail.com**
+- 📫 How to reach me **adveith17@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
